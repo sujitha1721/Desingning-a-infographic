@@ -1,1 +1,0 @@
-# Desingning-a-infographic
